@@ -33,3 +33,4 @@
 ## 📫 Connect with me
 
 - LinkedIn: (https://www.linkedin.com/in/amin-nazari-43928214b/)
+- E-Mail: (Aminnazari040@hotmail.com)
